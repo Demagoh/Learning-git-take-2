@@ -1,1 +1,1 @@
-oof running low on time today haha X_X 
+windows is soooo slow 
