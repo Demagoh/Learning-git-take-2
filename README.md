@@ -1,1 +1,1 @@
-windows is soooo slow 
+I'm too tired to think of something to say today 
